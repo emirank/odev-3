@@ -1,0 +1,1 @@
+[patika profil linki](https://app.patika.dev/emirank)
